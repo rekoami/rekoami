@@ -1,5 +1,5 @@
 #
-<img width="2311" height="2523" alt="Yūtenji_Nyamu_Elite_2" src="https://github.com/user-attachments/assets/b1aab8ca-ea86-42fb-86ca-4a8b60a13d7f" />
+<img src="https://github.com/user-attachments/assets/59ce4119-1820-45f5-9126-cb7c6e5f6742" />
 
 
   [ATABOOK ONLY](https://rekoami.atabook.org/)
